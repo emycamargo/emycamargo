@@ -1,0 +1,4 @@
+- 👋 oi, sou emmely camargo
+- 👀 estou enteresada em novas linguagens 
+- 🌱 eu estou estudando javascript
+- adoro gatos^-^
